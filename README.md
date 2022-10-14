@@ -1,1 +1,1 @@
-# odin-recipes
+ This recipe contains ingredients and steps of making basic pilau
