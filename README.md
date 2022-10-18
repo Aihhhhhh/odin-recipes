@@ -1,1 +1,1 @@
- This recipe contains ingredients and steps of making basic pilau
+ This recipe contains ingredients and steps of making basic pilau and waru which are my favorite meals.
